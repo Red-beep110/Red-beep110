@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Red-beep110
-- 👀 I’m interested in software & hardware
 
 
 
